@@ -4,5 +4,5 @@
 Heya, GDIM
 
 Adrian: Moin
-Sofia:
-Arghavan: Hi!
+Sofia: Kaffee ist geil
+Arghavan:
